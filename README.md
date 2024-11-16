@@ -1,0 +1,1 @@
+Jaagrukta is an Indian organization dedicated to increasing public awareness on vital issues. Our goal is to educate and empower citizens, addressing challenges unique to India. Through targeted campaigns and community involvement, we work to build an informed and proactive society. Join us in making awareness a collective effort for a brighter future
